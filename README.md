@@ -1,0 +1,216 @@
+10 Quick Air Fryer Recipes
+Air fryers have revolutionized the way we cook, offering a healthier alternative to traditional frying without compromising on taste and texture. These versatile countertop appliances use hot air to cook food, resulting in crispy and delicious dishes with less oil. If you own an air fryer or are considering getting one, here are 10 quick and easy air fryer recipes to try:
+
+1. Crispy Air Fryer Chicken Tenders
+Crispy Air Fryer Chicken Tenders
+
+Ingredients:
+
+1 pound chicken tenders
+1 cup all-purpose flour
+2 large eggs, beaten
+1 cup breadcrumbs
+1 teaspoon paprika
+1 teaspoon garlic powder
+Salt and pepper to taste
+Instructions:
+
+Preheat the air fryer to 400°F (200°C).
+
+confused on [ how to convert oven recipe time to Air fryer Recipe ](https://airfryerstar.com/air-fryer-calculator/)
+
+In separate bowls, place the flour, beaten eggs, and breadcrumbs mixed with paprika, garlic powder, salt, and pepper.
+Dip each chicken tender in the flour, then the eggs, and finally coat with the breadcrumb mixture.
+Place the coated tenders in the air fryer basket in a single layer, without overcrowding.
+Cook for 10-12 minutes, flipping halfway through, until the chicken is golden brown and cooked through.
+2. Air Fryer Garlic Parmesan French Fries
+Air Fryer Garlic Parmesan French Fries
+
+Ingredients:
+
+4 large russet potatoes, cut into fries
+2 tablespoons olive oil
+1/2 cup grated Parmesan cheese
+2 cloves garlic, minced
+1 tablespoon fresh parsley, chopped
+Salt and pepper to taste
+Instructions:
+
+Preheat the air fryer to 375°F (190°C).
+In a large bowl, toss the potato fries with olive oil, garlic, salt, and pepper.
+Place the seasoned fries in the air fryer basket and cook for 20-25 minutes, shaking the basket every 5 minutes to ensure even cooking.
+Sprinkle the cooked fries with grated Parmesan cheese and chopped parsley before serving.
+3. Crunchy Air Fryer Fried Pickles
+Crunchy Air Fryer Fried Pickles
+
+Ingredients:
+
+1 cup dill pickle slices
+1/2 cup all-purpose flour
+1 large egg, beaten
+1 cup breadcrumbs
+1 teaspoon paprika
+1/2 teaspoon cayenne pepper (optional)
+Ranch or your favorite dipping sauce
+Instructions:
+
+Preheat the air fryer to 400°F (200°C).
+Pat dry the pickle slices with paper towels to remove excess moisture.
+In separate bowls, place the flour, beaten egg, and breadcrumbs mixed with paprika and cayenne pepper.
+Dip each pickle slice in the flour, then the egg, and finally coat with the breadcrumb mixture.
+Place the coated pickles in the air fryer basket in a single layer.
+Cook for 8-10 minutes, flipping halfway through, until the pickles are golden and crispy.
+Serve with ranch or your preferred dipping sauce.
+4. Air Fryer Veggie Spring Rolls
+Air Fryer Veggie Spring Rolls
+
+Ingredients:
+
+8 spring roll wrappers
+1 cup shredded cabbage
+1 cup shredded carrots
+1/2 cup sliced bell peppers
+1/2 cup bean sprouts
+2 tablespoons soy sauce
+1 teaspoon sesame oil
+1 teaspoon grated ginger
+1 tablespoon cornstarch mixed with 2 tablespoons water (as a sealing agent)
+Instructions:
+
+In a large mixing bowl, combine the shredded cabbage, carrots, bell peppers, and bean sprouts.
+In a small bowl, mix the soy sauce, sesame oil, and grated ginger, and pour it over the vegetable mixture. Toss to coat.
+Lay a spring roll wrapper on a flat surface, and place 2-3 tablespoons of the vegetable filling near one corner of the wrapper.
+Roll the wrapper over the filling, tucking in the sides, and use the cornstarch-water mixture to seal the edges.
+Repeat with the remaining wrappers and filling.
+Preheat the air fryer to 375°F (190°C).
+Lightly brush the spring rolls with oil and place them in the air fryer basket in a single layer.
+Cook for 8-10 minutes until the spring rolls are golden and crispy.
+5. Air Fryer Zesty Lemon Shrimp Skewers
+Air Fryer Zesty Lemon Shrimp Skewers
+
+Ingredients:
+
+1 pound large shrimp, peeled and deveined
+2 tablespoons olive oil
+Zest of one lemon
+2 cloves garlic, minced
+1 teaspoon paprika
+1/2 teaspoon red pepper flakes (optional)
+Salt and pepper to taste
+Wooden skewers (soaked in water for 30 minutes)
+Instructions:
+
+In a large bowl, combine the shrimp, olive oil, lemon zest, minced garlic, paprika, red pepper flakes, salt, and pepper. Toss to coat the shrimp evenly.
+Thread the marinated shrimp onto the wooden skewers.
+Preheat the air fryer to 400°F (200°C).
+Place the shrimp skewers in the air fryer basket in a single layer, without overlapping.
+Cook for 5-7 minutes, turning the skewers halfway through, until the shrimp are pink and cooked through.
+6. Air Fryer Glazed Salmon
+Air Fryer Glazed Salmon
+
+Ingredients:
+
+4 salmon fillets
+2 tablespoons soy sauce
+2 tablespoons honey
+1 tablespoon Dijon mustard
+1 tablespoon olive oil
+2 cloves garlic, minced
+1 teaspoon grated ginger
+Sesame seeds and chopped green onions for garnish
+Instructions:
+
+In a small bowl, mix the soy sauce, honey, Dijon mustard, olive oil, minced garlic, and grated ginger to make the glaze.
+Coat the salmon fillets with the glaze on all sides and let them marinate for 15-20 minutes.
+Preheat the air fryer to 375°F (190°C).
+Place the glazed salmon fillets in the air fryer basket in a single layer.
+Cook for 10-12 minutes, depending on the thickness of the fillets, until the salmon is cooked through and flaky.
+Garnish with sesame seeds and chopped green onions before serving.
+7. Air Fryer Stuffed Mushrooms
+Air Fryer Stuffed Mushrooms
+
+Ingredients:
+
+16 large button mushrooms, stems removed
+1/2 cup cream cheese
+1/4 cup grated Parmesan cheese
+2 cloves garlic, minced
+1 tablespoon fresh parsley, chopped
+Salt and pepper to taste
+Instructions:
+
+In a bowl, mix the cream cheese, grated Parmesan cheese, minced garlic, chopped parsley, salt, and pepper.
+Stuff each mushroom cap with the cream cheese mixture.
+Preheat the air fryer to 375°F (190°C).
+Place the stuffed mushrooms in the air fryer basket in a single layer.
+Cook for 8-10 minutes until the mushrooms are tender and the filling is lightly browned.
+8. Air Fryer Coconut Shrimp
+Air Fryer Coconut Shrimp
+
+Ingredients:
+
+1 pound large shrimp, peeled and deveined
+1 cup shredded coconut
+1/2 cup all-purpose flour
+2 large eggs, beaten
+1/2 teaspoon paprika
+Salt and pepper to taste
+Sweet chili sauce or mango salsa for dipping
+Instructions:
+
+Preheat the air fryer to 400°F (200°C).
+In separate bowls, place the flour, beaten eggs, and shredded coconut mixed with paprika, salt, and pepper.
+Dip each shrimp in the flour, then the eggs, and finally coat with the shredded coconut mixture.
+Place the coated shrimp in the air fryer basket in a single layer.
+Cook for 6-8 minutes until the coconut shrimp are golden and crispy.
+Serve with sweet chili sauce or mango salsa for dipping.
+9. Air Fryer BBQ Chicken Wings
+Air Fryer BBQ Chicken Wings
+
+Ingredients:
+
+2 pounds chicken wings
+1/2 cup BBQ sauce
+2 tablespoons olive oil
+1 teaspoon garlic powder
+1 teaspoon smoked paprika
+Salt and pepper to taste
+Fresh cilantro or green onions for garnish
+Instructions:
+
+In a large bowl, mix the BBQ sauce, olive oil, garlic powder, smoked paprika, salt, and pepper.
+Add the chicken wings to the bowl and toss them in the BBQ sauce mixture until evenly coated.
+Preheat the air fryer to 375°F (190°C).
+Place the BBQ chicken wings in the air fryer basket in a single layer, without overcrowding.
+Cook for 20-25 minutes, flipping the wings halfway through, until they are cooked through and crispy.
+Garnish with fresh cilantro or green onions before serving.
+10. Air Fryer Chocolate Chip Cookies
+Air Fryer Chocolate Chip Cookies
+
+Ingredients:
+
+1 cup all-purpose flour
+1/2 cup unsalted butter, softened
+1/2 cup brown sugar
+1/4 cup granulated sugar
+1 large egg
+1 teaspoon vanilla extract
+1/2 teaspoon baking soda
+1/2 teaspoon salt
+1 cup chocolate chips
+Instructions:
+
+In a large mixing bowl, cream together the softened butter, brown sugar, and granulated sugar until light and fluffy.
+Beat in the egg and vanilla extract until well combined.
+In a separate bowl, whisk together the flour, baking soda, and salt.
+Gradually add the dry ingredients to the wet ingredients, mixing until a cookie dough forms.
+Fold in the chocolate chips.
+Preheat the air fryer to 350°F (175°C).
+Drop spoonfuls of cookie dough onto a parchment paper-lined air fryer basket.
+Cook the cookies in batches for 6-8 minutes until they are golden brown around the edges.
+Let the cookies cool on a wire rack before serving.
+Conclusion
+
+With these 10 quick air fryer recipes, you can easily whip up a variety of delicious dishes in no time. From crispy chicken tenders to delectable chocolate chip cookies, the air fryer proves to be a versatile kitchen tool. Experiment with different ingredients and flavors to create your own unique air fryer masterpieces. Happy air frying!
+
+[want more air fryer recipes and tips checkout airfryerstar.com](https://airfryerstar.com/air-fryer-calculator/)
